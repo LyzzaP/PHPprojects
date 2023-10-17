@@ -1,0 +1,1 @@
+# Sir nung trinay ko mag push uli sa school tas nag kaerror po. Tapos po may sinundan po kaming tutorial para maayos. Naayos po sya pero ung time nung pag push nag iba. 2weeks ago pa po yan na push.Thank you po!
